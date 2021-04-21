@@ -14,6 +14,7 @@ Step 3:
 Spray some non-stick oil onto waffle iron with non-stick cooking spray. Pour the mix you have made onto hot waffle iron. Wait for 4-6 minutes and then your done. Serve hot.
 
 ![image](https://user-images.githubusercontent.com/80979736/115592757-9f3de480-a2a1-11eb-917f-07ffc3d8c94a.png)
+![image](https://user-images.githubusercontent.com/80979736/115593379-6e11e400-a2a2-11eb-8a8d-52eddd124e77.png)
 
 OPTIONAL STEPS:
 
