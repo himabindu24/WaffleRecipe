@@ -6,6 +6,8 @@ Preheat the waffle iron. After doing that, mix up your flour, milk, vegetable oi
 Step 2:
 After, crack open the the eggs and beat them with a handbeater in the mixture you have already made.
 
+![image](https://user-images.githubusercontent.com/80979736/115592632-74ec2700-a2a1-11eb-9f44-f1d927efa3ca.png)
+
 Step 3:
 Spray some non-stick oil onto waffle iron with non-stick cooking spray. Pour the mix you have made onto hot waffle iron. Wait for 4-6 minutes and then your done. Serve hot.
 
