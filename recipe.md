@@ -18,3 +18,6 @@ Step 5:
 Add the chooped strawberry/blueberries on top of the waffle. For some extra taste, and some maple syrup on top!
 
 HAVE A DECIOUS MEAL!!!
+
+![image](https://user-images.githubusercontent.com/80979736/115591949-ab757200-a2a0-11eb-8572-14e1828d68b8.png)
+
