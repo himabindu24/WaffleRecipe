@@ -3,7 +3,7 @@ WAFFLE MAKING RECIPE:
 Step 1: 
 Preheat the waffle iron. After doing that, mix up your flour, milk, vegetable oil, sugar, baking powder, salt and vanilla untill they look smooth. 
 
-![image](https://user-images.githubusercontent.com/80979736/115592919-d90eeb00-a2a1-11eb-993d-91d41095bd20.png)
+![image](https://user-images.githubusercontent.com/80979736/115592919-d90eeb00-a2a1-11eb-993d-91d41095bd20.png=100*200)
 
 Step 2:
 After, crack open the the eggs and beat them with a handbeater in the mixture you have already made.
